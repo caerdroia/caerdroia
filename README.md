@@ -46,7 +46,7 @@
 <br>
 6️⃣ 🐕 Dogs (I have an adorable english cream dachshund named Ash. Everybody loves him although he's not a USD).<br>
 <br>
-BTW Here's the 🖼️ of him <strong>taking a ❄️ bath</strong>.
+Here's the 🖼️ of him <strong>taking a ❄️ bath</strong>.
 
 
 ![resized-image-Promo](https://user-images.githubusercontent.com/92051076/147075507-372b7083-eb80-4408-9057-eed807cb0457.jpeg)
