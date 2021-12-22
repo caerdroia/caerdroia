@@ -8,17 +8,23 @@
 
 
 1️⃣🔭 Solving various problems with elegant solutions (I find [Max Tegmark's Mathematical Universe Hypothesis](https://en.wikipedia.org/wiki/Mathematical_universe_hypothesis) mind-bending); <br>
+  <br>
 2️⃣ 💻 All things digital (engadget.com, theverge.com are among my most frequently used bookmarks);<br>
+  <br>
 3️⃣"🚀Physics - esp. foundations of QM  (an avid reader of popular science books and a listener of science podcasts - Sean Carroll's ["Mindscape"](https://www.preposterousuniverse.com/podcast/) being the favorite);<br>
+  <br>
 4️⃣🎥Movies (notably comedy, sci-fi and [giallo horror](https://en.wikipedia.org/wiki/Giallo)). I love humor and 😆 standup comedy, among my favorite comedians are: 
+  <br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️ [Louis CK](https://www.youtube.com/watch?v=wali_4tdQ-g) is #1 for me; <br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️[George Carlin](https://www.youtube.com/watch?v=Hy-sVByUHqE) (dark genius!);<br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️[Bill Burr](https://www.youtube.com/watch?v=h3g64swMf1M&t=354s) (his voice acting is phenomenal);<br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️[Dave Chappelle](https://www.youtube.com/watch?v=z2Rw3HspWY0) - all his specials are top-notch!;<br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️[Ricky Gervais](https://www.youtube.com/watch?v=iaAVp54twDA&t=280s) (for that dry-wit British humor).</pre><br>
+<br>
 5️⃣📸 Photograpy (my friends've been urging me to move into professional photography for years);<br>
+<br>
 6️⃣🐕 Dogs (I have an adorable english cream dachshund named Ash which is one of the rarest dog breeds abound).<br>
-
+<br>
 BTW Here's the picture of him <strong>taking a snow bath</strong>.
 
 
