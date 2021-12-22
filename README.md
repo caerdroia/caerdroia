@@ -13,7 +13,7 @@
   <br>
 3️⃣"🚀Physics - esp. foundations of QM  (an avid reader of popular science books and a listener of science podcasts - Sean Carroll's ["Mindscape"](https://www.preposterousuniverse.com/podcast/) being the favorite);<br>
   <br>
-4️⃣🎥Movies (notably comedy, sci-fi and [giallo horror](https://en.wikipedia.org/wiki/Giallo)). I love humor and 😆 standup comedy, among my favorite comedians are: 
+4️⃣🎥Movies (notably comedy, sci-fi and [giallo horror](https://en.wikipedia.org/wiki/Giallo)). I love humor and 😆 standup comedy, among my favorite comedians are: <br>
   <br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️ [Louis CK](https://www.youtube.com/watch?v=wali_4tdQ-g) is #1 for me; <br>
 &nbsp;&nbsp;&nbsp;&nbsp;➡️[George Carlin](https://www.youtube.com/watch?v=Hy-sVByUHqE) (dark genius!);<br>
