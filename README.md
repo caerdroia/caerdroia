@@ -28,7 +28,7 @@
 
 
 
-1️⃣🔭 Solving problems, looking for elegant solutions (I find [Euler's Identity](https://www.livescience.com/51399-eulers-identity.html) the epitome of Elegance); <br>
+1️⃣🔭 Solving problems, looking for elegant solutions (I find [Euler's Identity](https://www.livescience.com/51399-eulers-identity.html) the epitome of Elegance). Ideal programming is solving problems with logical elegance; <br>
   <br>
 2️⃣ 💻 All things digital (engadget.com, theverge.com are among my most frequently used bookmarks);<br>
   <br>
