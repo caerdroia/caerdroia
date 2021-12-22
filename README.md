@@ -24,7 +24,7 @@
 *[Find out](https://en.wikipedia.org/wiki/Brainfuck)*
 
 <p><strong>HI!</strong> I'm Denis and welcome to my GitHub page! </p>
-<p>I'm an aspiring Software Engineer (started diving into Java in 2021) and a Marketing Professional (Real Estate). I'm passionate about many things (who isn't?) but if I had to choose just 6, these are the ones which came to mind first:<p>
+<p>I'm an aspiring Software Engineer (started diving into Java in 2021) and a Marketing Professional (Real Estate). I'm passionate about many things (who isn't?) but if I had to choose just 6, these would be the ones (just came to mind first):<p>
 
 
 
