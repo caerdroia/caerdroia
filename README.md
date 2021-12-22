@@ -28,7 +28,7 @@
 
 
 
-1️⃣🔭 Solving problems, looking for most elegant solution (I find [Max Tegmark's Mathematical Universe Hypothesis](https://en.wikipedia.org/wiki/Mathematical_universe_hypothesis) the epitome of Math Elegance); <br>
+1️⃣🔭 Solving problems, looking for elegant solutions (I find [Euler's Identity](https://www.livescience.com/51399-eulers-identity.html) the epitome of Elegance); <br>
   <br>
 2️⃣ 💻 All things digital (engadget.com, theverge.com are among my most frequently used bookmarks);<br>
   <br>
