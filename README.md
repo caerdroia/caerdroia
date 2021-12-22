@@ -36,11 +36,11 @@
   <br>
 4️⃣ 🎥Movies (notably comedy, sci-fi and [giallo horror](https://en.wikipedia.org/wiki/Giallo)). I love humor and 😆 standup comedy, among my favorite comedians are: <br>
   <br>
-&nbsp;&nbsp;&nbsp;&nbsp;➡️[Louis CK](https://www.youtube.com/watch?v=wali_4tdQ-g) - <strong>#1</strong> for me; <br>
-&nbsp;&nbsp;&nbsp;&nbsp;➡️[George Carlin](https://www.youtube.com/watch?v=Hy-sVByUHqE) - dark Genius!;<br>
-&nbsp;&nbsp;&nbsp;&nbsp;➡️[Bill Burr](https://www.youtube.com/watch?v=h3g64swMf1M&t=354s) - voice parody is phenomenal;<br>
-&nbsp;&nbsp;&nbsp;&nbsp;➡️[Dave Chappelle](https://www.youtube.com/watch?v=z2Rw3HspWY0) - all specials are top-notch!;<br>
-&nbsp;&nbsp;&nbsp;&nbsp;➡️[Ricky Gervais](https://www.youtube.com/watch?v=iaAVp54twDA&t=280s) - for that dry-wit humor the Great Britain is famous for.</pre><br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;➡️[Louis CK](https://www.youtube.com/watch?v=wali_4tdQ-g) - <strong>#1</strong> for me; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;➡️[George Carlin](https://www.youtube.com/watch?v=Hy-sVByUHqE) - dark Genius!;<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;➡️[Bill Burr](https://www.youtube.com/watch?v=h3g64swMf1M&t=354s) - voice parody is phenomenal;<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;➡️[Dave Chappelle](https://www.youtube.com/watch?v=z2Rw3HspWY0) - all specials are top-notch!;<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;➡️[Ricky Gervais](https://www.youtube.com/watch?v=iaAVp54twDA&t=280s) - for that dry-wit humor the Great Britain is famous for.</pre><br>
 <br>
 5️⃣ 📸 Photograpy (my friends've been urging me to move into professional photography for years);<br>
 <br>
