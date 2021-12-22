@@ -1,6 +1,6 @@
 ## ++++++++++[>+>+++>+++++++>++++++++++<<<<-]>>>>++++.---.+++++++..+++.<<++.>>++++++++.--------.+++.------.--------.##👋 🌍: 
 
-<em>Does this come from some alien civilisation 90 million light years away or it's a coded message for Napoleaon with directions to escape from [Elba](https://www.history.com/news/elba-exile-napoleon-escape)?"</em>❓
+<em>Does it come from an alien civilisation 90 million light years away or it's a coded message for Napoleaon with directions to escape from [Elba](https://www.history.com/news/elba-exile-napoleon-escape)?"</em>❓
 
 <p>I'm Denis and welcome to my GitHub page! </p>
 <p>I'm an aspiring Software Engineer (started diving into Java during covid, who can I surprise with that fact?) and a Marketing Professional (real estate development). I'm passionate about many things (who isn't?) but if I had to choose just 6, these are the ones which came to mind first:<p>
