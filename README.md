@@ -24,11 +24,11 @@
 *[Find out](https://en.wikipedia.org/wiki/Brainfuck)*
 
 <p><strong>HI!</strong> I'm Denis and welcome to my GitHub page! </p>
-<p>I'm an aspiring Software Engineer (started diving into Java during covid, who can I surprise with that fact?) and a Marketing Professional (real estate development). I'm passionate about many things (who isn't?) but if I had to choose just 6, these are the ones which came to mind first:<p>
+<p>I'm an aspiring Software Engineer (started diving into Java in 2021) and a Marketing Professional (Real Estate). I'm passionate about many things (who isn't?) but if I had to choose just 6, these are the ones which came to mind first:<p>
 
 
 
-1️⃣🔭 Solving problems, looking for elegant solutions (I find [Euler's Identity](https://www.livescience.com/51399-eulers-identity.html) the epitome of Elegance). Ideal programming is solving problems with logical elegance; <br>
+1️⃣🔭 Solving problems, looking for elegant solutions (I find [Euler's Identity](https://www.livescience.com/51399-eulers-identity.html) the epitome of Universal Elegance). Ideal programming is solving problems with logical elegance, that's why I love it; <br>
   <br>
 2️⃣ 💻 All things digital (engadget.com, theverge.com are among my most frequently used bookmarks);<br>
   <br>
