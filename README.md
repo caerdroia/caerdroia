@@ -1,9 +1,10 @@
 ## ++++++++++[>+>+++>+++++++>++++++++++<<<<-]>>>>++++.---.+++++++..+++.<<++.>>++++++++.--------.+++.------.--------.##👋 🌍: 
 
-❓ <em>Does this come from some alien civilisation 90 million light years away from Earth or maybe it's a coded message for Napoleaon with directions to escape [Elba](https://www.history.com/news/elba-exile-napoleon-escape)?"</em>❓
+❓ <em>Does this come from some alien civilisation 90 million light years away or it's a coded message for Napoleaon with directions to escape from [Elba](https://www.history.com/news/elba-exile-napoleon-escape)?"</em>❓
 
 I'm Denis and welcome to my GitHub page! </bd>
-I'm an aspiring Software Engineer (started diving into Java during covid, who can I surprise with that fact?) and a Marketing Professional (real estate development). I'm passionate about many things (who isn't?) but if I had to choose just 6, these are the ones which came to mind first:
+I'm an aspiring Software Engineer (started diving into Java during covid, who can I surprise with that fact?) and a Marketing Professional (real estate development). I'm passionate about many things (who isn't?) but if I had to choose just 6, these are the ones which came to mind first: 
+
 
 
 1️⃣🔭 Solving various problems with elegant solutions (I find [Max Tegmark's Mathematical Universe Hypothesis](https://en.wikipedia.org/wiki/Mathematical_universe_hypothesis) mind-bending); <br>
