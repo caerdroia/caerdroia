@@ -1,7 +1,7 @@
-#### >++++++++[<+++++++++>-]<.>++++[<+++++++>-]<+.+++++++..+++.>>++++++[<+++++++>-]<+
-#### +.------------.>++++++[<+++++++++>-]<+.<.+++.------.--------.>>>++++[<++++++++>-
-#### ]<+.👋  
-*Does it come from some alien civilisation living some 90 light years away from Earth or maybe it's a coded message for Napoleaon with directions to escape Elba?"*
+## >++++++++[<+++++++++>-]<.>++++[<+++++++>-]<+.+++++++..+++.>>++++++[<+++++++>-]<+
+## +.------------.>++++++[<+++++++++>-]<+.<.+++.------.--------.>>>++++[<++++++++>-
+## ]<+.👋  
+*Does this come from some alien civilisation living some 90 light years away from Earth or maybe it's a coded message for Napoleaon with directions to escape Elba?"*
 
 I'm Denis and welcome to my GitHub page! I'm an aspiring Software Engineer (started diving into Java in fall of 2021) and a Marketing Professional (real estate development). I'm passionate about many things (who isn't?) if I had to choose (just did) these are the ones I'd share:
 
@@ -14,9 +14,9 @@ I'm Denis and welcome to my GitHub page! I'm an aspiring Software Engineer (star
 
 right... 
 
-* I could write another 3 pages here but hey, GitHub's all about my code and not me occupying precious bytes here ranting . lol
+* I could write another 3 pages here but hey, GitHub's all about my code and not me occupying precious bytes here ranting. lol
 
-* In spare time I love to walk/hike for miles and mile - it's not important whether it's a city park, a forest or 1000 km Camino de Santiago. 
+* In spare time I love to walk/hike for miles and miles - it's not important whether it's a city park, a forest or 1000 km Camino de Santiago. 
 * Let's say walking is my way of practicing mindfulness and being at peace with myself and the world (heard Einstein was of the same opinion, have you?). 
 
 
