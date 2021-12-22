@@ -19,11 +19,12 @@ right...
 
 * In spare time I love to walk/hike for miles and miles - it's not important whether it's a city park, a forest or 1000 km Camino de Santiago. 
 * Let's say walking is my way of practicing mindfulness and being at peace with myself and the world (heard Einstein was of the same opinion, have you?). 
-* Here's the picture of my dog. Love you all!
+
+* Here's the picture of my dog btw. 
+
+![resized-image-Promo](https://user-images.githubusercontent.com/92051076/147075507-372b7083-eb80-4408-9057-eed807cb0457.jpeg)
 
 
-
-![photo_2021-12-22_13-04-14](https://user-images.githubusercontent.com/92051076/147075029-c18fa864-65be-4b7c-b14c-f3580f6f921f.jpg)
 
 
 
