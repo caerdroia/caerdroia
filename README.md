@@ -44,7 +44,7 @@
 <br>
 5️⃣📸 Photograpy (my friends've been urging me to move into professional photography for years);<br>
 <br>
-6️⃣🐕 Dogs (I have an adorable english cream dachshund named Ash which is one of the rarest dog breeds abound).<br>
+6️⃣🐕 Dogs (I have an adorable english cream dachshund named Ash. Everybody loves him although he's not a USD).<br>
 <br>
 BTW Here's the picture of him <strong>taking a snow bath</strong>.
 
