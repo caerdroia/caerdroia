@@ -1,7 +1,7 @@
 ## ++++++++++[>+>+++>+++++++>++++++++++<<<<-]>>>>++++.---.+++++++..+++.<<++.>>++++++++.--------.+++.------.--------.##👋 🌍: 
 
-*Does it come from an alien civilisation 90 mil light years away or it's a coded message for Napoleaon with directions to escape from [Elba](https://www.history.com/news/elba-exile-napoleon-escape)&nbsp;:question:"*; <br> 
-<br>
+*Does it come from an alien civilisation 90 mil light years away or it's a coded message for Napoleaon with directions to escape from [Elba](https://www.history.com/news/elba-exile-napoleon-escape)&nbsp;:question:* <br> 
+
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
@@ -19,6 +19,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 *[Find out](https://en.wikipedia.org/wiki/Brainfuck);*
 
 <p><strong>HI!</strong> I'm Denis and welcome to my GitHub page! </p>
